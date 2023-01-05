@@ -1,4 +1,4 @@
-## Learn to learn
+## Learn to learn :thinking:
 
 There are many different strategies and approaches that can help you learn effectively. Here are a few tips that may be helpful:
 
